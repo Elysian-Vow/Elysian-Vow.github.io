@@ -1,2 +1,3 @@
-# Elysian-Vow.github.io
-Elysian Vow est 2025
+Property of J.A Weighell, Contact email: Elysianvow@gmail.com
+
+Link: Elysian-Vow.github.io
